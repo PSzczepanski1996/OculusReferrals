@@ -1,4 +1,6 @@
-# Device referal (Meta Store):
+# All referrals:
+
+### Device referral (Meta Store):
 https://www.meta.com/referrals/link/HoshiYamazaki/
 
 ### Virtual Virtual Reality: 
