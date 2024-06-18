@@ -22,8 +22,8 @@ https://www.oculus.com/appreferrals/HoshiYamazaki/2129805820435611/?utm_source=o
 ### Headspace XR:
 
 https://www.oculus.com/appreferrals/HoshiYamazaki/24496870869957102/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
-SuperHot:
 
+### SuperHot:
 https://www.oculus.com/appreferrals/HoshiYamazaki/1921533091289407/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
 
 ### Fruit Ninja: 
