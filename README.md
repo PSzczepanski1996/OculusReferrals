@@ -4,6 +4,10 @@
 
 https://www.meta.com/referrals/link/HoshiYamazaki/
 
+### Beat Saber: 
+
+https://www.oculus.com/appreferrals/HoshiYamazaki/2448060205267927/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
+
 ### Pavlov Shack: 
 
 https://www.oculus.com/appreferrals/HoshiYamazaki/2443267419018232/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
