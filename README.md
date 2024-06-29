@@ -36,6 +36,10 @@ https://www.oculus.com/appreferrals/HoshiYamazaki/5136958036416423/?utm_source=o
 
 https://www.oculus.com/appreferrals/HoshiYamazaki/2731491443600205/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
 
+### A Fisherman Tale:
+
+https://www.oculus.com/appreferrals/HoshiYamazaki/2299967930057156/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
+
 ### Headspace XR:
 
 https://www.oculus.com/appreferrals/HoshiYamazaki/24496870869957102/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
