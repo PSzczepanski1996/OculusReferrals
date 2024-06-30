@@ -20,6 +20,14 @@ https://www.oculus.com/appreferrals/HoshiYamazaki/2443267419018232/?utm_source=o
 
 https://www.oculus.com/appreferrals/HoshiYamazaki/3349689215139117/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
 
+### Elven Assasin:
+
+https://www.oculus.com/appreferrals/HoshiYamazaki/2325731427501921/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
+
+### Angry Birds:
+
+https://www.oculus.com/appreferrals/HoshiYamazaki/2718606324833775/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
+
 ### Sushi Ben:
 
 https://www.oculus.com/appreferrals/HoshiYamazaki/5459391390744272/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
