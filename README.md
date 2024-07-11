@@ -28,6 +28,14 @@ https://www.oculus.com/appreferrals/HoshiYamazaki/2325731427501921/?utm_source=o
 
 https://www.oculus.com/appreferrals/HoshiYamazaki/2718606324833775/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
 
+### Chess Club:
+
+https://www.oculus.com/appreferrals/HoshiYamazaki/5353996901307344/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
+
+### Thumper:
+
+https://www.oculus.com/appreferrals/HoshiYamazaki/1854124104686464/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
+
 ### Sushi Ben:
 
 https://www.oculus.com/appreferrals/HoshiYamazaki/5459391390744272/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
