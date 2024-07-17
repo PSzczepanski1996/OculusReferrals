@@ -4,6 +4,10 @@
 
 https://www.meta.com/referrals/link/HoshiYamazaki/
 
+### Asgard's Wrath 2:
+
+https://www.oculus.com/appreferrals/HoshiYamazaki/2603836099654226/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
+
 ### Assassin's Creed Nexus VR:
 
 https://www.oculus.com/appreferrals/HoshiYamazaki/5812519008825194/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
