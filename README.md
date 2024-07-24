@@ -32,6 +32,18 @@ https://www.oculus.com/appreferrals/HoshiYamazaki/2325731427501921/?utm_source=o
 
 https://www.oculus.com/appreferrals/HoshiYamazaki/2718606324833775/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
 
+### MiRacle Pool:
+
+https://www.meta.com/appreferrals/HoshiYamazaki/7067612163334384/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral%2F&utm_content=copy
+
+### Resident Evil 4:
+
+https://www.meta.com/appreferrals/HoshiYamazaki/2637179839719680/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral%2F&utm_content=copy
+
+### Five Nights at Freddy's: Help Wanted:
+
+https://www.meta.com/appreferrals/HoshiYamazaki/3162101440489458/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral%2F&utm_content=copy
+
 ### Chess Club:
 
 https://www.oculus.com/appreferrals/HoshiYamazaki/5353996901307344/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
@@ -47,6 +59,10 @@ https://www.oculus.com/appreferrals/HoshiYamazaki/5459391390744272/?utm_source=o
 ### Moss:
 
 https://www.oculus.com/appreferrals/HoshiYamazaki/1654565391314903/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
+
+### Moss 2:
+
+https://www.meta.com/appreferrals/HoshiYamazaki/4395292760584049/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral%2F&utm_content=copy
 
 ### Broken Edge: 
 
