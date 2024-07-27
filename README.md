@@ -8,6 +8,26 @@ https://www.meta.com/referrals/link/HoshiYamazaki/
 
 https://www.oculus.com/appreferrals/HoshiYamazaki/2603836099654226/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
 
+### Asgard's Wrath:
+
+https://www.meta.com/appreferrals/wookasho9o/1180401875303371/?utm_source=oculus&utm_location=4&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
+
+### Dance Dash:
+
+https://www.meta.com/appreferrals/wookasho9o/6539528912840791/?utm_source=oculus&utm_location=4&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
+
+### Stilt:
+
+https://www.meta.com/appreferrals/wookasho9o/5632444056884139/?utm_source=oculus&utm_location=4&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
+
+### Death Horizon: Reloaded:
+
+https://www.meta.com/appreferrals/wookasho9o/2115015981923610/?utm_source=oculus&utm_location=4&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
+
+### Grokit:
+
+https://www.meta.com/appreferrals/wookasho9o/3388893331234972/?utm_source=oculus&utm_location=4&utm_parent=frl&utm_medium=app_referral%2F&utm_content=copy
+
 ### Assassin's Creed Nexus VR:
 
 https://www.oculus.com/appreferrals/HoshiYamazaki/5812519008825194/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
