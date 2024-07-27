@@ -94,7 +94,7 @@ https://www.oculus.com/appreferrals/HoshiYamazaki/2582932495064035/?utm_source=o
 
 ### Tokyo Chronos: 
 
-https://www.oculus.com/appreferrals/HoshiYamazaki/2129805820435611/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral/&utm_content=copy
+https://www.meta.com/appreferrals/HoshiYamazaki/2812851825399383/?utm_source=oculus&utm_location=2&utm_parent=frl&utm_medium=app_referral%2F&utm_content=copy
 
 ### SuperHot:
 
