@@ -1,4 +1,4 @@
-# All referrals:
+# Oculus Quest referrals:
 
 ### Device referral (Meta Store):
 
